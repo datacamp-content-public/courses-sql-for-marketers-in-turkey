@@ -1,0 +1,1 @@
+# courses-sql-for-marketers-in-turkey
